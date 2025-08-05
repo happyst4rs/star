@@ -6,6 +6,7 @@
   <sup> read prns page and strawpage for additonal info. entire github under rmk. <sup> 
 
 ![image](https://github.com/user-attachments/assets/ebd688cf-ecbd-41b4-adf3-9fd801caba27)
+<sup> IM SO SORRY I FORGOT THE ARTIST BUT THE ART ISNT MINE!! :( <sup>
 <!--
 **happyst4rs/star** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
